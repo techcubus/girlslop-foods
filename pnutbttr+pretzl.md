@@ -4,3 +4,5 @@
 3. Apply preferred peanut butter (I use creamy Skippy) to one half.
 4. Arrange pretzel sticks side by side, covering the peanut butter side completely.
 5. Close sandwich and slice along the diagonal bias.
+
+![](assets/ymail-tmp-1801669765213287453.jpg)
