@@ -9,4 +9,4 @@
 7. Oven at 425 for 10 minutes or until cheese has browned slightly.
 8. Pair with grape lemonade.
 
-![[assets/9f965281-404a-4790-859a-e0fccbc70096.jpg]]
+![](assets/9f965281-404a-4790-859a-e0fccbc70096.jpg)
